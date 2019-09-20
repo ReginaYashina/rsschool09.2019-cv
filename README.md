@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://reginayashina.github.io/rsschool-cv/cv
